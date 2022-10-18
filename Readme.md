@@ -1,2 +1,2 @@
 # GitHub	
-Criando um novo repositório, treinando treinando treinando treinando 
+Kaio Neocred, Isabela JACAD 
