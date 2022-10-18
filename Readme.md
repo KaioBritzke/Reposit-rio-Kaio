@@ -1,2 +1,2 @@
 # GitHub	
-Repositorio, de testes testando
+Criando um novo repositório, treinando treinando treinando treinando 
